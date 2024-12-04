@@ -1,5 +1,4 @@
-
-![Thumb](https://github.com/user-attachments/assets/f6cce7e5-5bae-42be-a5d3-2271992d3b48)
+![Thumb](https://github.com/user-attachments/assets/cb580a33-a4ff-4ac3-a47e-a6af4fd05fb9)
 
 **Link do Figma:**
 
